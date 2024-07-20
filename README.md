@@ -1,0 +1,4 @@
+- [https://www.quora.com/profile/Danny-Soong-7](https://www.quora.com/profile/Danny-Soong-7)
+- [https://x.com/DannySoong25](https://x.com/DannySoong25)
+- [https://www.pinterest.com/d92345034/](https://www.pinterest.com/d92345034/)
+- [https://medium.com/@d92345034](https://medium.com/@d92345034)
